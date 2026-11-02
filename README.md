@@ -70,7 +70,7 @@ Through this project, I practiced:
 
 Moni Gupta
 
-- GitHub: "@moni305" (https://github.com/moni305)
+- GitHub: "@moni3025" (https://github.com/moni3025)
 
 ---
 
